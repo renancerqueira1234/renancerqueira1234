@@ -6,7 +6,7 @@ Meu nome e Renan Cerqueira
 - e sobre...
 - utilizo esse espaço para minha organizaçao e compartilhar os meus projetos
 
-- ### voces podem entrar cmg em meu instagram
+- ### voces podem me seguir no insta
 
 - @dcrowkjkk
 
